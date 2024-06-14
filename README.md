@@ -1,0 +1,2 @@
+# shama-anki
+sbcsncbsdnc s
